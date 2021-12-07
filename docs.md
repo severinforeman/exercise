@@ -4,4 +4,4 @@ Note that this toothbrush is completely safe to use for children, adults, pets, 
 
 The toothbrush requires two AA batteries.
 
-After you are done, your teeth will be at a new level of clean. We're talking SUPER CLEAN.
+After you are done, your teeth will be at a new level of clean. You've never seen this kind of clean. We're talking SUPER CLEAN.
